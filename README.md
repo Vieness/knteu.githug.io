@@ -1,1 +1,1 @@
-https://vieness.github.io/knteu.githug.io/
+https://vieness.github.io/knteu_fin.githug.io/.
